@@ -1,3 +1,6 @@
+[![Ceasefire Now](https://badge.techforpalestine.org/default)](https://techforpalestine.org/learn-more)
+
+
 # HI GITHUB, DROP ICE
 
 https://notechforice.com/
