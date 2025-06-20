@@ -1,5 +1,13 @@
 [![StandWithPalestine](https://raw.githubusercontent.com/Safouene1/support-palestine-banner/master/StandWithPalestine.svg)](https://techforpalestine.org/learn-more)
 
+as of Jun 20, 2025, more than 25 members of my family <br />
+have been murdered by israeli forces using US funded weaponry. 
+
+resources:
+- [learn more](https://decolonizepalestine.com/)
+- [shop](https://bdsmovement.net/campaigns) [ethically](https://www.boycat.io/)
+- im always available to chat
+  
 # HI GITHUB, DROP ICE
 
 https://notechforice.com/
